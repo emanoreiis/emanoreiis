@@ -1,4 +1,4 @@
-# Olá! Seja muito bem-vindo(a) ao meu perfil no Github ☺
+# Olá! Seja muito bem-vindo(a) ao meu perfil no Github ☺🔥
 Um pouco sobre mim:
 
 - 📚 Estudante de Análise e Desenvolvimento de Sistemas;
